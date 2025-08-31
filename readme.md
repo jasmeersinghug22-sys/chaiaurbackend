@@ -1,0 +1,2 @@
+#haoi aur nackeneds erires
+-[model link](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbEc2cGE4Z0wyLTVsMHZNMURYbXR1dVNLSmJ6UXxBQ3Jtc0tsSGdIZkZ3X0V2a2x6Ml90UnVwbHJ4Si1sSXFqRkhYeE1sSERQdzloUUNUeXY0b2ZiUUFiOGluY2lIT2RQcmZQTk12R0JYdFkzTm5Kd1hxZ3B0U3MwWDljSXVkZmV1ZmlPUWhMS1VoSWtTNnl5Y2JwUQ&q=https%3A%2F%2Fapp.eraser.io%2Fworkspace%2FYtPqZ1VogxGy1jzIDkzj%3Forigin%3Dshare&v=9B4CvtzXRpc)
